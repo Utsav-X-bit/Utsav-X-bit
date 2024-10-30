@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Utsav-X-bit
 - 👀 I’m interested in Coumpters 0_0
 - 🌱 I’m currently learning Web Development
-- 📫 How to reach me? : Email me at utsavgupta5467@gmail.com or Dm me at @Evokkes on Telegram :D
+- 📫 How to reach me? : Email me at utsavgupta5467@gmail.com or Dm me at [XD_OD](https://t.me/Evokkers) on Telegram :D
 - ⚡ Fun fact: Ichigo is a hybrid :)
 
 <!---
